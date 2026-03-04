@@ -14,7 +14,7 @@
 
 ## Connect with Me
 - **Discord Server:** [Join here](https://discord.com/servers/ghostbyte-r-ttu-1249113251006906430)
-- **Instagram:** [@lfiharv](https://www.instagram.com/NullEssa)
+- **Instagram:** [@NullEssa](https://www.instagram.com/NullEssa)
 
 ---
 
